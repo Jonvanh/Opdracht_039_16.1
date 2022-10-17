@@ -28,3 +28,5 @@ In a bowl mix together the balsamic vinegar, maple syrup, tamari and whisk it to
 Line a medium sized baking tray (approximately the size of the sheet of puff pastry) with baking parchment. Spread your vegan cream cheese over the pasty and sprinkle the thyme over, evenly. Transfer the cooked veg and spread out evenly. Fit the sheet of puff pastry to fit the size of the baking tray and carefully place on top tucking in any edges (if your tray is smaller than the puff pastry sheet you will need to cut it slightly)
 
 Put in the preheated oven and bake for 20-30 minutes until the pastry starts to golden up.Remove the dish from the oven, put a board that is slightly bigger than the pan on top of it and invert so that the pastry is now on the bottom and the cooked veg on top. Garnish with the remaining thyme leaves, slice and enjoy!
+
+just added a new line
